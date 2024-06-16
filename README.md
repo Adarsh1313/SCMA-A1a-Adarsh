@@ -1,1 +1,1 @@
-# SCMA-A1a-Adarsh
+# SCMA-A1a
